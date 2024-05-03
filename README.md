@@ -1,2 +1,2 @@
 # Project1
-Talks about women empowering african women in education
+Talks about empowering african women in education
